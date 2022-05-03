@@ -10,7 +10,8 @@ quero lembrar que não sou o dono da verdade e pode existir formas melhores de s
 
 ###### Dica e presente ao final 💡🎁
 ###### Qualquer contribuição é só fazer aquele PR esperto 😎
-###### Caso queira mandar aquele pix maneiro de 1 centavo🪙🤑 👉 157.872.727-81 🔑
+###### Caso queira mandar aquele pix maneiro de 1 centavo🪙🤑 👉 42264fb6-f3f7-44d7-b1b4-d209ad4c32db 🔑
+###### Deixa também aquela ⭐ aí pô, custa nada 😁
 
 ### Vamos ao passo a passo:
 
