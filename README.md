@@ -8,10 +8,10 @@ algo que me levou mais de 17 pomodoros de 50 min**😮😮😮
 Mas felizmente consegui criar e vou compartilhar com você,
 quero lembrar que não sou o dono da verdade e pode existir formas melhores de se fazer isso.
 
-###### *Dica e presente ao final 💡🎁
-###### *Qualquer contribuição é só fazer aquele PR esperto 😎
-###### *Caso queira mandar aquele pix maneiro de 1 centavo🪙🤑 👉 42264fb6-f3f7-44d7-b1b4-d209ad4c32db 🔑
-###### *Deixa também aquela ⭐ aí pô, custa nada 😁
+###### Dica e presente ao final 💡🎁
+###### Qualquer contribuição é só fazer aquele PR esperto 😎
+###### Caso queira mandar aquele pix maneiro de 1 centavo🪙🤑 👉 42264fb6-f3f7-44d7-b1b4-d209ad4c32db 🔑
+###### Deixa também aquela ⭐ aí pô, custa nada 😁
 
 ### Vamos ao passo a passo:
 
